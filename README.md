@@ -33,4 +33,4 @@ Members:<br>
 Asis Kaur<br>
 Anmol Mittal<br>
 S Aditya<br>
-Paras Jain<br>
+Harsh Harit<br>
